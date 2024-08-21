@@ -2,7 +2,6 @@
 
 Perkenalkan nama saya Mu'azah Al'Adawiyah.
 Saya seorang Mahasiswi Universitas Dinamika Bangsa.
-Saya sedang mempelajari bagaimana menjadi seorang web developer di Dicoding.
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/muazah-aladawiyah-4194741b9) ku ya.
 
 
